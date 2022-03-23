@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Navneet4738H
+- 👀 I’m interested in Gaming
+- 🌱 I’m currently learning Headshots
+- 💞️ I’m looking for Free Fire account for free.
+- 📫 How to reach me: https://discord.gg/4trDsePMuT
